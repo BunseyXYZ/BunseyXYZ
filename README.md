@@ -1,5 +1,5 @@
 Hey! 🐇
- Misu Studios,
+ Misu Studios here,
 
 We work on environmental designing, world lighting, etc.
 There are somethings that I love doing.
