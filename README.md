@@ -1,9 +1,6 @@
-Hey! 🐇
- Misu Studios here,
+Hi
 
-We work on environmental designing, world lighting, etc.
-There are somethings that I love doing.
-I love making art, creating 3d models etc.
+1 thing to know about me, If ucking hate blender and I somehow still use it.
 
 I
 <!---
